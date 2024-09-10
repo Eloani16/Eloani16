@@ -11,3 +11,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
  1092087679sp@al.educacao.sp.gov.br
 
  elo.c.souza
+
+![](https://media1.tenor.com/m/8iUexSCT_ykAAAAC/sunnyfication.gif)
